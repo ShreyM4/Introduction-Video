@@ -1,7 +1,7 @@
 # GitHub Self Introduction
 
-[cite_start]**Name:** Shrey Mittal
-[cite_start]**Registration Number:** 23BCE11659
+**Name:** Shrey Mittal
+**Registration Number:** 23BCE11659
 
 PFA my self-introduction video link below:
 
